@@ -1,56 +1,56 @@
  [`ℹ️ ＦＯＬＬＯＷ ＦＯＲ ＵＰＤＡＴＥＳ
-`](https://github.com/Xcelsama)
+`](https://github.com/Prince1O0)
 [![-----------------------------------------------------](https://raw.githubusercontent.com/andreasbm/readme/master/assets/lines/colored.png)](#table-of-contents)
-      <p align="center">[🇸 🇹 🇦 🇷 -🇲 🇩 ](https://wa.me/+2347045035241)
+      <p align="center">[V Y K R I E - M D](https://wa.me/+263780858655)
 [![-----------------------------------------------------](https://raw.githubusercontent.com/andreasbm/readme/master/assets/lines/colored.png)](#table-of-contents)
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Protest+Strike&size=25&duration=600&pause=700&color=BggB&random=false&width=435&lines=+Hi++%E1%95%95(+%D5%9E+%E1%97%9C+%D5%9E+)%E1%95%97+I'm+STAR-MD-V2................+;A+Multi-fuctional+WhatsApp+bot.......;+++++BY+EXCEL+AMADI............." alt="Typing SVG" /></a>  
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Protest+Strike&size=25&duration=600&pause=700&color=BggB&random=false&width=435&lines=+Hi++%E1%95%95(+%D5%9E+%E1%97%9C+%D5%9E+)%E1%95%97+I'm+VYKRIE-MD-V2................+;A+Multi-fuctional+WhatsApp+bot.......;+++++BY+PRINCE............." alt="Typing SVG" /></a>  
 
 
 [`ℹ️IN CASE OF HELP CONCERNING DEPLOYMENT
-`](https://wa.me/+2347045035241)
+`](https://wa.me/+263780858655)
 
  
 
 ##  🌠```Bot Intro```🌠
-[![STAR-MD-V2](https://i.ibb.co/x8RVYs5/20240302-120657.jpg)](https://wa.me/2347045035241)
+[![VYKRIE-MD-V2](https://telegram.me/FilesStoringBot?start=Z2V0LTc0ODI0MDQzNTk3MjU3OTg)](https://wa.me/263780858655)
 </p>
       <p align="center">
-  <a href="https://wa.me//+2347045035241" target="_blank">
+  <a href="https://wa.me//+263780I58655" target="_blank">
     <img alt="whatsapp" src="https://img.shields.io/badge/ Whatsapp -25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
   </a>
-  <a aria-label="STAR-MD is free to use" href="https://chat.whatsapp.com/EmP3syvou18HrZk6R6nTAK" "target="_blank"><img alt='Whatsapp' src='https://img.shields.io/badge/OFFICIAL-GC-h?color=black&style=for-the-badge&logo=whatsapp' width="96.35" height="28"/></a></p>
+  <a aria-label="VYKRIE-MD is free to use" href="https://chat.whatsapp.com/GjNQs4QVWkq3GZVmycBvHq" "target="_blank"><img alt='Whatsapp' src='https://img.shields.io/badge/OFFICIAL-GC-h?color=black&style=for-the-badge&logo=whatsapp' width="96.35" height="28"/></a></p>
 
    
  
 <p align="center">
-<a href='https://chat.whatsapp.com/Lg0lY4M1k8oDMYzylg86xs' 
-  <a aria-label="Join our chats" href="https://chat.whatsapp.com/FdwbFnI8Fcf4VTVvFTFk08" target="_blank">
+<a href='https://chat.whatsapp.com/GjNQs4QVWkq3GZVmycBvHq' 
+  <a aria-label="Join our chats" href="https://chat.whatsapp.com/GjNQs4QVWkq3GZVmycBvHq" target="_blank">
 
    <img alt="whatsapp" src="https://img.shields.io/badge/Join Group-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
 <img alt="whatsapp" src="https://img.shields.io/badge/Bot%20Whatsapp-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
 
   <a
- href="https://wa.me//+2347045035241"></a>
+ href="https://wa.me//+263780858655"></a>
 </p>
 
   </a>
 
 
-<h1 align="center"> 🌠𝗦𝗧𝗔𝗥-𝗠𝗗-𝗩𝟮🌠
+<h1 align="center"> ✨VYKRIE MD✨
 </p>
    
-### ℹ️ **ABOUT STAR-MD-V2**
-***STAR-MD-V2 is a 🌟 versatile Multi-Device WhatsApp bot 🤖 recoded by the talented [Excel Amadi](https://github.com/Xcelsama) It offers a wide array of features, making it an advanced and user-friendly bot for various purposes. 🎉📱 With its intuitive interface and robust capabilities, users can unlock endless possibilities 🚀 and streamline their communication across devices with ease.***
+### ℹ️ **ABOUT VYKRIE MD**
+***VYKRIE-MD- is a 🌟 versatile Multi-Device WhatsApp bot 🤖 weaved by the talented [Prince](https://github.com/Prince1O0) It offers a wide array of features, making it an advanced and user-friendly bot for various purposes. 🎉📱 With its intuitive interface and robust capabilities, users can unlock endless possibilities 🚀 and streamline their communication across devices with ease.***
 
 </a>
-   <a aria-label="STAR-MD-V2 is free to use" href="https://whatsapp.com/channel/0029VaBcXo4JJhzW9c1uVD2X" target="_blank">
+   <a aria-label="VYKRIE-MD is free to use" href="https://chat.whatsapp.com/GjNQs4QVWkq3GZVmycBvHq" target="_blank">
  <p align="center"><img src="https://profile-counter.glitch.me/{xcelsama}/count.svg" alt="xcelsama:: Visitor's Count" /></p>
 
 
 
 ## ⭐ `Star This Repo`
-If you find STAR-MD-V2 helpful, consider giving it a star ⭐ to show your appreciation,Support.
+If you find VYKRIE-MD helpful, consider giving it a star ⭐ to show your appreciation,Support.
 
 
 
@@ -72,7 +72,7 @@ If you find STAR-MD-V2 helpful, consider giving it a star ⭐ to show your appre
 
 
 ❏FORK THE REPOSITORY 
-  <a href="https://github.com/Xcelsama/STAR-MD-V2/fork" target="_blank">
+  <a href="https://github.com/Prince1O0/STAR-MD-V2/fork" target="_blank">
   <img src="https://img.shields.io/badge/FORK STAR-black?style=for-the-badge&logo=render" alt="Authenticate With WhatsApp" width="170" height="34">
 </a>
 
@@ -99,7 +99,7 @@ If you find STAR-MD-V2 helpful, consider giving it a star ⭐ to show your appre
 
 ☉Now Deploy
     <br>
-<a href='https://dashboard.heroku.com/new?template=https://github.com/Xcelsama/STAR-MD-V2' target="_blank"><img alt='DEPLOY' src='https://img.shields.io/badge/-DEPLOY-black?style=for-the-badge&logo=heroku&logoColor=white'/></a>
+<a href='https://dashboard.heroku.com/new?template=https://github.com/Prince1O0/STAR-MD-V2' target="_blank"><img alt='DEPLOY' src='https://img.shields.io/badge/-DEPLOY-black?style=for-the-badge&logo=heroku&logoColor=white'/></a>
 
 #### DEPLOY TO REPLIT
  If You don't have an account in Replit. Create a account.
@@ -178,7 +178,7 @@ NOW Deploy👇
 ## DEPLOY IN KOYEB    
 [![Deploy on Koyeb](https://www.koyeb.com/static/images/deploy/button.svg)](https://app.koyeb.com/auth/signup)  
 ## `OWNER` 
-<a href="https://github.com/Xcelsama"><img src="https://github.com/Xcelsama.png" width="250" height="250" alt="Xcelsama"/></a>
+<a href="https://github.com/Prince1O0"><img src="https://github.com/Prince1O0.png" width="250" height="250" alt="Prince"/></a>
 
    
 
